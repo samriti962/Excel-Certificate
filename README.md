@@ -1,2 +1,1 @@
-# Excel-Certificate
-"Leveling up my Excel game! 📈 #excelcertified #skillsupgrade #newskills"
+"Happy to share that I am now officially Excel certified! This achievement marks a significant learning milestone and opens up new possibilities for data management and analysis. Looking forward to applying these advanced Excel skills in real-world scenarios. #ExcelCertified #LearningJourney #DataAnalysis"
